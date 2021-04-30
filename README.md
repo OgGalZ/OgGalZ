@@ -8,9 +8,9 @@ Who am I??
 
 -Love Mathematics 📚
 
--Minecraft !
+-I love JetBrains 🔥 !
 
--Project manager !
+-Project manager 🙃 !
 
 
 
