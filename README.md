@@ -1,4 +1,4 @@
 ### Hi there 👋
 
--Geek !! 💻 , Programming fan  ❤️  , Love Mathematics 📚 , I love JetBrains 🔥 ! and Project manager 🙃 !
+-Geek !! 💻 , Programming fan  ❤️  , and Project manager 🙃 !
 
